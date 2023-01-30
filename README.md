@@ -1,2 +1,2 @@
-# Viesnica
+# Viesnicas majas lapa
 

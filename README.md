@@ -1,2 +1,2 @@
-# Viesnicas majas lapa
+# Lapa projekts
 
